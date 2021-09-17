@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LucaVerhoeven
-- 👀 I’m interested in gaming
+- 👀 I’m interested in Gaming
 - 🌱 I’m currently learning Software Engineering
 - 💞️ I’m looking to collaborate on absolutely nothing
 - 📫 How to reach me: @KakBanaan op twitter aa
